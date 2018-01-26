@@ -9,3 +9,7 @@ so,hope i work with GIT smooth and good.
 
 2018/1/26 -2
 weekend is dum and lazy.
+
+
+2018/1/26 -3
+i have no idea to do for powerapp to do workflow on my business
